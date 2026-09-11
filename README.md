@@ -6,7 +6,7 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
 <img src="https://github.com/user-attachments/assets/3c11e3a8-767f-4ef1-a2eb-2cb438805e57" />
 </p>
 
-‎<a href="https://TU-LINK-DE-STRAW-PAGE.com">
+‎<a href="https://Thttps://cakemary.straw.page/">
   <img
     src="https://raw.githubusercontent.com/BoomBoomsJelly/BoomBoomsJelly/refs/heads/main/file_0000000006848230a09a3670ad3be242.png"
     alt="Straw Page"
