@@ -13,7 +13,6 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
     width="100"
   >
 </a>
-[https://cakemary.straw.page/]
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎‎‎ ‎ ‎ [![ata](https://file.garden/ae-FUgfELjoYT3k-/ezgif-10cb2085da723354.png)](https://sunset.atabook.org/) 
 
 
