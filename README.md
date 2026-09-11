@@ -6,13 +6,7 @@ ${\textsf{\color{#ffe592} ah-ha}}$ ${\textsf{\color{#6de3ff}yeah,}}$ ${\textsf{\
 <img src="https://github.com/user-attachments/assets/3c11e3a8-767f-4ef1-a2eb-2cb438805e57" />
 </p>
 
-‎<a href="https://Thttps://cakemary.straw.page/">
-  <img
-    src="https://raw.githubusercontent.com/BoomBoomsJelly/BoomBoomsJelly/refs/heads/main/file_0000000006848230a09a3670ad3be242.png"
-    alt="Straw Page"
-    width="100"
-  >
-</a>
+‎[![Straw](https://raw.githubusercontent.com/BoomBoomsJelly/BoomBoomsJelly/refs/heads/main/file_0000000006848230a09a3670ad3be242.png)](https://cakemary.straw.page/)
 ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎  ‎ ‎ ‎  ‎ ‎  ‎ ‎  ‎‎‎ ‎ ‎ [![ata](https://file.garden/ae-FUgfELjoYT3k-/ezgif-10cb2085da723354.png)](https://sunset.atabook.org/) 
 
 
